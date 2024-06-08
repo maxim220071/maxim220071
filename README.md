@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to eat cheese
 - 💞️ I’m looking to collaborate on i dont know
 - 📫 How to eat cheese: just eat cheese
-- 😄 Pronouns: a
+- 😄 how to dance: cucumber
 - ⚡ Fun fact: cucumber is a cucumber
 
 <!---
